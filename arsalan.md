@@ -1,3 +1,3 @@
-- Arsalan
+- Arsalan Khattak
 - Islamabad
 - NUML
